@@ -11,3 +11,5 @@ the blind fools, they devoured the cattle of the Sun
 and the Sungod blotted out the day of their return.
 Launch out on his story, Muse, daughter of Zeus,
 start from where you will—sing for our time too. 
+It was blue.
+
